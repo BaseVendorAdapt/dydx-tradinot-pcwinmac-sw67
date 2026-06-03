@@ -1,4 +1,4 @@
-# 
+# Top dydx trading bot workflow for Mac OS | Advanced dydx trading bot workflow for PC Windows. Featuring mev protection and trend following — optimized for maximum performance on every platform.
 
 
 
